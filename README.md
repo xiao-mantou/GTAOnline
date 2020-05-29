@@ -12,9 +12,9 @@
 `Weeny lssi Classic`
 ### Off
 >The lssi,lssi Classic and the lssi Sport 50% 
->Imponte Deluxo 40% 
->Truffade Nero 40% 
->Vysser Neo 40% 
->Declasse Mamba 40% 
->Progen PR4 30% 
->HVY brickade 30% 
+>Imponte Deluxo 40%  
+>Truffade Nero 40%  
+>Vysser Neo 40%  
+>Declasse Mamba 40%  
+>Progen PR4 30%  
+>HVY brickade 30%  
