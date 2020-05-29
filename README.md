@@ -10,12 +10,15 @@
 >Weeny Tee  
 ![](/images/c873daac-acf2-4ae3-8e77-e1d8e028880f.jpg)
 ### xX
->3X GTA$ & PR in Issi Classic Races  
-![](/images/437f3769-1aae-47a3-8574-4b4e0d6f1a44.png)
+>- [] 3X GTA$ & PR in Issi Classic Races  
+![](/images/437f3769-1aae-47a3-8574-4b4e0d6f1a44.png)  
+>2X GTA$ & RP Madrazo Dispatch and Lamar’s Lowrider Missions
+![](/images/madrazo.jpg)
+![](/images/lowrider.jpg)
 ### The Lucky Wheel
 `Weeny lssi Classic`
 ![](/images/podium.jpg)
-### Off
+### Discounts(Off)
 >`The lssi`,`lssi Classic` and `the lssi Sport` 50% 
 ![](/images/weeny.jpg)
 >`Imponte Deluxo` 40%  
